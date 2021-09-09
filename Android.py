@@ -6,7 +6,1941 @@ def ketik(teks):
   sys.stdout.write(i)
   sys.stdout.flush()
   time.sleep(0.01)
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
 
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
 saat_ini = datetime.now()
 tgl = saat_ini.strftime('%d')
 bln = saat_ini.strftime('%m')
