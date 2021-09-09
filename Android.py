@@ -1938,6 +1938,3870 @@ def ketik(teks):
 
 
 
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+#kqng ricod
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
+
+
+#kqng ricod
+
+
+
+
+
 
 
 #kqng ricod
